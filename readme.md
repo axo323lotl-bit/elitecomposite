@@ -1,1 +1,1 @@
-brainrot yandex games (names might not be the same as in yandex) 
+> mainly to used to embed twerk race 3d into ECOG
